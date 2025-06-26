@@ -3,7 +3,7 @@
 牛牛美图是一个专注于提供各类精美图片的综合性网站。它以丰富多样的图片资源和便捷的浏览体验吸引了众多用户。网站涵盖了清纯美女、性感美女、明星、古风、cosplay等多种热门图片类别，满足了不同用户的审美需求。无论是寻找手机壁纸、电脑壁纸，还是挑选个性化的头像图片，用户都能在这里轻松找到心仪的内容。此外，网站界面简洁美观，图片加载速度快，为用户提供了优质的视觉享受。
 
 <p><strong>一键访问：</strong><a href="https://www.ggonav.com/sites/5933.html" target="_blank" ><strong>牛牛美图最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshi" target="_blank" ><strong>影视在线看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.ggonav.com/favorites/ziyuansousuo" target="_blank" ><strong>资源搜索</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
